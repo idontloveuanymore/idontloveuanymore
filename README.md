@@ -3,7 +3,7 @@
   # Social
   me:// https://idontloveuanymore.github.io/fade.awway/    
   codewars - https://www.codewars.com/users/qwexzcssad      
-  telegram - t.me/i_dont_love_u_anymore    
+  telegram - https://t.me/i_dont_love_u_anymore    
   lolz - https://zelenka.guru/members/7118067/      
 
 tired. I'll finish it later.
